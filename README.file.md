@@ -1,7 +1,6 @@
+![image](https://github.com/20BCE11035/travel-advisor-application./assets/133901407/1e84eab3-03e6-4905-8ba4-6f67a40d9bd1)
 
  
-
-![image001](https://github.com/Userrajat/Create-a-travel-advisor-application./assets/96570080/f6bad354-365d-48f1-808d-e0652abc1763)
 
 
 
